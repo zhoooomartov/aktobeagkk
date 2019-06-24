@@ -1,0 +1,2 @@
+# aktobeagkk
+Elaman Zhomartov
